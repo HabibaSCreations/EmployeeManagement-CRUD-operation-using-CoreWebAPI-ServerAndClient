@@ -81,8 +81,9 @@ Menu Links:
 
 🧑‍💻 Author
 
-**Mst. Habiba Anjum**  
+**Habiba Anjum**  
 GitHub: [https://github.com/HabibaSCreations](https://github.com/HabibaSCreations)
+Email:habibaanjum9799@gmail.com
 
 ---
 
